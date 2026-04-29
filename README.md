@@ -1,5 +1,5 @@
 # 💫 About Me:
-I'm Currently Working On: NETWORKING PROJECTS<br>I'm Looking To Collaborate With: ANYONE FROM NETWORKING or AI<br>I'm Currently Learning: CCNA <br>Ask Me About: @NAGASARATH89@GMAIL.COM<br>Fun Fact: I PLAY CHESS AND SKATEBOARDING
+I'm Currently Working On: NETWORKING PROJECTS<br>I'm Looking To Collaborate With: ANYONE FROM NETWORKING or AI<br>I'm Currently Learning: CCNA <br>Ask Me About: @NAGASARATH89@GMAIL.COM<br>Fun Fact: I LIKE SKATING AND I PLAY CHESS
 
 
 ## 🌐 Socials:
